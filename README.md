@@ -25,4 +25,6 @@ Collaboration and teamwork
 Continuous learning and growth
 
 
-🚀 Outside of work and studies, you can find me exploring new technologies, contributing to open-source projects, or enjoying outdoor adventures. Let's connect and collaborate on some exciting projects together!
+🚀 Outside of work and studies, you can find me exploring new technologies, contributing to open-source projects, or enjoying outdoor adventures.
+
+Let's connect and collaborate on some exciting projects together!
